@@ -4,4 +4,4 @@ Me apasiona el diseño de experiencias digitales y actualmente enfoco mi carrera
 
 I'm passionate about digital experiences design and I currently focus my career on UI/UX design. I'm constantly learning so I can be part of projects that transform ideas into attractive and functional solutions.
 
-- 🌱 Actualmente aprendiendo diseño UI/UX
+- 🌱 Diseñador UI/UX Jr.
